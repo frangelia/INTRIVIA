@@ -11,4 +11,6 @@ Sejauh ini INTRIVIA seru banget, dari pemateri-pemateri hebat, saya mendapatkan 
 ## Kesan Pesan Cluster 1 Sejauh Ini 
 Sejauh ini cluster 1 keren banget, kompak, dan supportif. Kakak-kakak fasilitator di cluster 1 (Kak Omar dan Kak Asya) juga sangat informatif, membimbing, dan membantu saya maupun teman-teman cluster yang lain dengan sabar. Hal ini membuat saya dan teman-teman merasa bahwa kakak fasilitator bukan hanya sekedar 'memfasilitasi' kami semua, namun juga menjadi teman di lingkungan FILKOM ini.
 
+## Harapan Kuliah 
+Harapan kuliah saya ada banyak, yang pertama saya berharap bisa mendapatkan nilai yang bagus di semua mata kuliah, saya juga berharap pada akhirnya nanti saya bisa lulus cumlaude 3.5 tahun. Di masa kuliah ini saya juga berharap untuk bisa mendapat banyak teman, memperluas relasi, bisa mengikuti dan memenangkan banyak kompetisi baik di bidang akademik maupun non akademik. Yang terakhir saya juga berharap untuk bisa mengembangkan soft skill saya, seperti berkomunikasi, bersosialisasi, bekerja dalam tim, dan sebagainya.
 
